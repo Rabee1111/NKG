@@ -1,0 +1,2 @@
+# NKG
+Nieuwe komers gids
